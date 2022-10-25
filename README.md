@@ -15,7 +15,7 @@
 
 - 💬 Ask me about **Project Management and Data Analysis.**
 
-- 📫 How to reach me **amusan.oluwatoniloba@bowen.edu.ng**
+- 📫 How to reach me **toniamusan@gmail.com**
 
 - ⚡ Fun fact **I practice teamwork in Apex Legends and Call of Duty mobile.**
 
